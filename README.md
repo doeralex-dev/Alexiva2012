@@ -2,7 +2,7 @@
 - 👀 I’m interested in Softweardevelopmend and all with PCs
 - 🌱 I’m currently learning HTML and CSS
 - 💞️ I’m looking to collaborate on a Notion space with blocks from Html Css and Python (in German)
-- 📫 How to reach me Discord: Alexiva2012
+- 📫 How to reach me on Discord: Alexiva2012
 - 😄 Pronouns: Cook 
 - ⚡ Fun fact: I don't like french fries and ketchup it isn't tasty for me.
 
