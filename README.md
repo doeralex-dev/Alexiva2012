@@ -2,6 +2,7 @@
 - 👀 I’m interested in Softweardevelopmend and all with PCs
 - 🌱 I’m currently learning HTML and CSS
 - 💞️ I’m looking to collaborate on nothing, but if have a good idea you can write me (im not so good with Softweardevelopmend but i practis) 
+- 🙋 Pronouns: he/him
 - 📫 How to reach me on Discord: Alexiva2012
 
 <!---
